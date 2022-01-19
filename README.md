@@ -26,6 +26,4 @@ How do people contact ME or ask a question?
 waleed.hossam1@msa.edu.eg
 
 
-
-https://user-images.githubusercontent.com/57118431/150124619-4396894c-69ea-4689-a9ff-145b81e003a8.mp4
-
+https://user-images.githubusercontent.com/57118431/150124824-50fd1e3c-9098-4441-8d90-f30c2208021a.mp4
